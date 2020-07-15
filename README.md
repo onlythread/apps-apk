@@ -10,4 +10,8 @@
 - [Spotify](https://www.mediafire.com/file/kx992vxb32hbl1k/Spotify_Premium_%25C3%25BAltima_vers%25C3%25A3o_%2528_Canal_Aut%25C3%25AAntico_Tutoriais%2529.apk/file)
 - [vhs Cam](http://www.mediafire.com/file/w54u0dzbsblkbum/VHS_Cam_v1.4.1_-_The_Original_VHS.apk/file)
 - [ibis paint](http://www.mediafire.com/file/i3or0vsrd136vd0/ibisPaint_Premium_5.5.4.apk/file)
-
+- [the sims](https://www.mediafire.com/file/jz0fl62ylebh2a3/The_Sims_Mobile_v19.0.0.86305_MOD.apk/file)
+- [Minecraft](http://www.mediafire.com/file/00he934mqa4gg10/Minecraft-Beta-v1.14.2.50-%2528mod1%2529__AndroidFinal.com_.apk/file)
+- [kinemaster](https://www.mediafire.com/file/klvqavl91d3zsx1/KineMaster-Pro-Video-Editor-v4.11.16.14372.GP-Unlocked__AndroidFinal.com_.apk/file)
+- [air brush](http://www.mediafire.com/file/vyrrxf3m9rgvt4g/Air_Brush_2020_Eduarda-Gomes.apk/file)
+- [YouTube](https://www.mediafire.com/file/w8yz9l89ms8yh64/Youtube_Premium_%257C_Canal_oficial_Aut%25C3%25AAntico_Tutoriais.apk/file)
